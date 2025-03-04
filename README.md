@@ -1,13 +1,13 @@
-# **Stake.us Promo Code 'HELLAUSA' – Get $55 Free Cash & 260,000 Gold Coins**
+# **Stake.us Promo Code HELLAUSA to Get $55 FC, 260k GC | March 2025**
 
-Looking to claim free rewards at Stake.us? The **promo code "**[**HELLAUSA**](https://stake.us/?c=8da027adcb&offer=HELLAUSA)**"** grants new users an **exclusive welcome bonus of $55 in Stake Cash and 260,000 Gold Coins**. This social casino platform is packed with exciting promotions, rewarding gameplay, and a vast selection of casino-style games, making it a top choice for players in 2025.
-
-## Latest Stake.us Promo Codes
+## Latest Stake.us Promo Codes for March 2025
 | 🔥 Bonus Type | Promo Code | Details |
 | --- | --- | --- |
-| 🎰 Casino Welcome Bonus | HELLAUSA | Get $55 Stake Cash + 260,000 Gold Coins |
-| 🎁 Weekly Raffles | Hella200 | Get 100,000,000 in Gold Coins and 100,000 Stake Cash |
-| 🎀 50M GC daily races | HellagoodUSA | Get 50,000,000 Gold Coins |
+| 🎰 Stake.us Welcome Bonus | HELLAUSA | Get $55 SC + 260,000 GC |
+| 🎁 Weekly Raffles | Hella200 | Get 100,000,000 GC and 100,000 SC |
+| 🎀 50M GC daily races | HellagoodUSA | Get 50,000,000 GC |
+
+Looking to claim free rewards at Stake.us? The **promo code "**[**HELLAUSA**](https://stake.us/?c=8da027adcb&offer=HELLAUSA)**"** grants new users an **exclusive welcome bonus of $55 in Stake Cash and 260,000 Gold Coins**. This social casino platform is packed with exciting promotions, rewarding gameplay, and a vast selection of casino-style games, making it a top choice for players in 2025.
 
 ![image](https://github.com/user-attachments/assets/1799f0d8-0378-4e51-9589-0b1c94ed9695)
 
@@ -42,6 +42,21 @@ The **"HellagoodUSA"** code is tailored for players who enjoy playing with Gold 
 ### **4\. HellaNew – Get $25 Stake Cash + 250,000 Gold Coins**
 
 If you’re looking for a **smaller, yet still valuable welcome bonus**, the **"HellaNew"** promo code grants **$25 in Stake Cash and 250,000 Gold Coins**. This offer is an excellent choice for beginners who want to test out Stake.us without committing to a larger bonus. The Gold Coins allow players to explore the platform’s slot games, table games, and Stake Originals, while the Stake Cash provides a chance to participate in sweepstakes and potentially win real-world prizes.
+
+## **How to Qualify for the Stake.us Promo Code Bonus**
+
+Before claiming the **Stake.us welcome offer**, let’s go over the key terms and conditions:
+
+*   The bonus is available **only for first-time players**, and you must verify your email within **48 hours** of creating your account to opt in.
+*   During registration, enter the **promo code SBRBONUS** to activate the offer—no purchase is required.
+*   You must be **at least 21 years old** and reside in an eligible state. Players from **Washington, New York, Nevada, Idaho, Kentucky, Michigan, Vermont, New Jersey, Delaware, West Virginia, Pennsylvania, and Rhode Island** are not eligible.
+*   To claim your bonus, you must **verify your identity** by submitting valid government-issued identification.
+*   To maximize the offer, **log in daily for 30 consecutive days** after signing up. Each day you sign in, you’ll receive **10,000 Gold Coins (GC) and 1 Stake Cash (SC)**, totaling **300,000 GC and $30 SC** if you complete the full period.
+*   A **3x playthrough requirement** applies before you can redeem **25 SC**, with a **1:1 SC-to-USD conversion rate**.
+*   **Stake Cash (SC) can only be redeemed** for cryptocurrency or other prizes. Ensure you have a **compatible digital wallet** before withdrawing, or your funds may be lost.
+*   The supported cryptocurrencies for withdrawal include **Bitcoin, Bitcoin Cash, Dogecoin, Ethereum, and Litecoin**.
+
+By meeting these conditions, you can take full advantage of the **Stake.us welcome bonus** and start playing with extra rewards!
 
 ## **How the Stake.us Bonus Code Offer Works**
 
